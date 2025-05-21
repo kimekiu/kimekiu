@@ -10,10 +10,10 @@
 - 💀 diversión **porque estoy aburrida**
 - 👾 simplemente **quiero probar**
   
-<h2> / current skills / </h2>
+<h2> / Cosas / </h2>
   
 - <h4> lenguaje </h4>
-  <img src = "https://raw.githubusercontent.com/tandpfun/skill-icons/main/icons/Java-Dark.svg" alt = "java" />
+  <img src = "https://media.tenor.com/3uqcn2EY1KwAAAAM/konata-izumi-konata.gif" alt = "java" />
 
   
   - <h5> probando en... </h5>
