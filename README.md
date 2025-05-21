@@ -1,4 +1,4 @@
-<p align = center ><img src="[https://i.imgur.com/x6qU1kR.png](https://w0.peakpx.com/wallpaper/311/792/HD-wallpaper-great-konata-cute-hiiragi-kagami-girl-blue-hair-anime-lucky-star-izumi-konata.jpg)"> </p>
+<p align = center ><img src="https://w0.peakpx.com/wallpaper/311/792/HD-wallpaper-great-konata-cute-hiiragi-kagami-girl-blue-hair-anime-lucky-star-izumi-konata.jpg"> </p>
 
 <div>
 
